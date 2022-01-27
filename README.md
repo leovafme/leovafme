@@ -4,7 +4,7 @@
 - 🔭 I’m currently working on [OPA S.A.S](https://www.opa.com.co/)!
 - 🌱 I’m currently learning everything 🤣
 - 👯 I’m looking to collaborate with other content creators
-- 🥅 2020 Goals: Contribute more to Open Source projects
+- 🥅 2022 Goals: Contribute more to Open Source projects
 - ⚡ Fun fact: I love to draw, play guitar and gardening
 
 ### Connect with me:
